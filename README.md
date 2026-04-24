@@ -1,0 +1,1 @@
+# Sistema-Inteligente-de-Escala-Operacional-Excel-VBA-
